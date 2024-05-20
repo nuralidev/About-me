@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me My website.I don't use social network.
 - 😉 If you want you can use my repositories
--👌 You can contact me on my website-htps://nuralidev.com
+-👌 You can contact me on my website- htps://nuralidev.com
